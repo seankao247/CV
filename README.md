@@ -1,2 +1,2 @@
 # CV
-[resume_v2.pdf](https://github.com/user-attachments/files/17323804/resume_v2.pdf)
+[sean_resume_v3.pdf](https://github.com/user-attachments/files/17507994/sean_resume_v3.pdf)
